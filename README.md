@@ -1,1 +1,1 @@
-# zaliczenie
+# Andrii Deineka
